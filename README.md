@@ -14,6 +14,6 @@
 此外，平台还定期更新内容，用户可以随时发现新影片。而简洁直观的界面设计和智能推荐系统，能帮助用户轻松找到自己喜欢的影片，提升观看体验。
 总的来说，选择提供日本AV免费资源的平台，让你在没有广告、无需支付的情况下，享受高清、流畅、安全的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x20250705 ）</span>
 
 
